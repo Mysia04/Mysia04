@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mysia04
 - 👀 I’m interested in hacking 
-- 🌱 I’m currently learning ...
+
 - 💞️ I’m looking a hacker .
 - 
 - 📫 How to reach me kingakhtar421@gmail.com.
